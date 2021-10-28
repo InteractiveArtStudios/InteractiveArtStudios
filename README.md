@@ -12,7 +12,7 @@ Discord:
 
 Forums And Other Socials
 
-Twitter:
+Twitter: https://twitter.com/InteractiveArt9
 
 Reddit:
 
