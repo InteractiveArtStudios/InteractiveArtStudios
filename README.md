@@ -18,11 +18,9 @@ Reddit:
 
 Facebook:
 
-This is my website, I'll be uploading 5 seconds worth of gifs on my project:
+I'll be uploading 5 seconds worth of gifs on my project:
 
-You can also find them here:
-
-Instagram:
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 I'm working on my Indie Game: (Yet to be named)
 
